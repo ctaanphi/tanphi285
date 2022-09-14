@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tanphi285 - Born in 2002 in Can Tho city
+- 👀 I’m interested in every amazing things around
+- 🌱 I’m currently learning mechatronics - robotics at HCMUTE
+- 📫 Phone: 0898361265 - Mail: tanphi285@gmail.com
