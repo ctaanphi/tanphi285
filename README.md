@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @tanphi285 - Born in 2002 in Can Tho city
-- 👀 I’m interested in every amazing things around
-- 🌱 I’m currently learning mechatronics - robotics at HCMUTE
-- 📫 Phone: 0898361265 - Mail: tanphi285@gmail.com
+- 👋 Hi, I’m Cao Tần Phi - Born in 2002 in Can Tho city.
+- 👀 I’m interested in every amazing things around.
+- 🌱 I’m learning mechatronics - robotics at HCMUTE. Id: 20146513.
+- 📷 I'm realy interested and have skill on photography and designing(Posters, banners, videos,...).
+- 📫 Phone: 0898361265 - Mail: tanphi285@gmail.com.
