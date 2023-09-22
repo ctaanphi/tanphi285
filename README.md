@@ -1,5 +1,4 @@
-- 👋 Hi, I’m Cao Tần Phi - Born in 2002 in Can Tho city.
-- 👀 I’m interested in every amazing things around.
+- 👋 Hi, I’m Cao Tần Phi - I was born in 2002 in Can Tho city.
+- 👀 I’m interested in every amazing thing around.
 - 🌱 I’m learning mechatronics at HCMUTE. Id: 20146513.
-- 📷 I'm really interested and have skills on photography and designing(Photos, videos, posters, banners,...).
-- 📫 Call me: 0898361265/0879270502 - Mail: tanphi285@gmail.com.
+- 📫 Call me: 0898361265/0879270502 - Mail: phict.ct@gmail.com.
